@@ -1,0 +1,1 @@
+![[GiaBigMap.png]]
